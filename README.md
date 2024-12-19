@@ -7,3 +7,6 @@ At Indalo, we believe that self-care is an essential part of life, and our missi
 Whether you’re looking to revitalize your hair, nourish your skin, or enhance your grooming routine, Indalo is your trusted partner for sustainable, cruelty-free, and dermatologically tested solutions. Experience the perfect balance of tradition and innovation with Indalo, where beauty meets care.
 
 Let me know if you'd like any specific additions or edits!
+
+https://indalo.in/
+
